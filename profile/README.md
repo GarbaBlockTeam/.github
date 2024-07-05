@@ -1,5 +1,7 @@
 ## Welcome to **GarbaBlockTeam** - Pioneers of the Blockchain Revolution! 🚀
 
+**Links:** [**Twitter**](https://x.com/GarbaBlockCT) | [**Contact Email**](mailto:balkisugarba478@gmail.com) | [**Our Discord Channel**]()
+
 **Innovating Blockchain Technology:**
 - At GarbaBlockTeam, we're not just building blockchain solutions; we're setting the standards for a decentralized future. 🌐
 - Our commitment to innovation drives us to explore the uncharted territories of blockchain, ensuring that our solutions are not just cutting-edge but also transformative. 🔍
